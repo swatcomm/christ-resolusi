@@ -1,0 +1,2 @@
+# christ-resolusi
+resolusi kedepan
